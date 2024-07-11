@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anything! I want to learn as much as possible
 - 📫 How to reach me on Discord: sophicirmin or by email: adrian.ghari@gmail.com
 - 😄 Pronouns: None, please use my name!
-- ⚡ Fun fact: I lived a year abroad in Malaysia right after college.
+- ⚡ Fun fact: I lived in Malaysia for a year after college.
 
 <!---
 Hobruh/Hobruh is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
